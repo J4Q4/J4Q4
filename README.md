@@ -1,4 +1,4 @@
-<h1>wassuppp</h1>
+<h1>it's over for me 🥀🥀 </h1>
 
 <img src="https://imgur.com/bzWgIvM.gif" alt="me_rn">
 
