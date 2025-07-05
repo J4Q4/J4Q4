@@ -5,7 +5,7 @@
 <pre>
     send help
 </pre>
-<img src="https://imgur.com/bzWgIvM.gif" alt="me_rn">
+<img src="assets/burn.gif" alt="me_rn">
     
 
 </div>
